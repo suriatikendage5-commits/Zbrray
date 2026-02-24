@@ -1,0 +1,2 @@
+# Zbrray
+Hanya membagikan stiker
